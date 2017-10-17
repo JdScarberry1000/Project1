@@ -2,10 +2,6 @@
 1st attempt at Git Repo
 jason voorhees lol
 
+costume - batman
 
-
-Jd Headbanger's halloween costume = idfk
-Everardo- jason voorhees
-Nayib
-Jordan...
-
+jordan - costume a ghost 

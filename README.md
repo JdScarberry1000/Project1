@@ -1,7 +1,10 @@
 # Project1
 1st attempt at Git Repo
-jason voorhees lol lol
 
-costume - batman
+Jd Scarberry - the Joker
 
-jordan - costume a ghost 
+Everardo - jason voorhees
+
+Nayib - batman
+
+Jordan - costume a ghost 

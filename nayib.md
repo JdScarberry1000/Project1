@@ -4,6 +4,12 @@ oreos
 skittles
 starburst
 
+Twizzlers
+Twix
+Tim Tams
+Cookies
+Fuck candy corn
+
 1.
 2.
 3.
